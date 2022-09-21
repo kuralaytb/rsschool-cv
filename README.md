@@ -1,1 +1,1 @@
-https://kuralaytb.github.io/rsschool-cv/cv
+https://kuralaytb.github.io/rsschool-cv/
